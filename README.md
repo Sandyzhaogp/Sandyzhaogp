@@ -52,7 +52,7 @@ Used regime outputs for portfolio rotation and risk mitigation.
 
 ## 📬 Contact  
 📧 Email: zhaogeping123@icloud.com  
-🔗 LinkedIn: *add your LinkedIn URL here*  
+🔗 LinkedIn: *www.linkedin.com/in/sandy-zhao-g-428b9b102*  
 🇸🇬 Singapore Permanent Resident (SPR)
 
 ---
